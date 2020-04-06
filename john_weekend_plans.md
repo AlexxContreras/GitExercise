@@ -1,0 +1,1 @@
+My weekend plans are to sit on the couch with my fiancee drinking beer and watching TV waiting for the world to end!  If it wasn't for the coronavirus, I would most likely be doing the same thing, just waiting for the world to end in a different way.
